@@ -2,4 +2,4 @@
 
 HTML is my world!!!
 
-Currently a student in Oslo.
+Currently a student in Oslo 🔥
